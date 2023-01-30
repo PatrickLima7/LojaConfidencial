@@ -1,4 +1,4 @@
-Loja Confidencial projeto de E-Commerce na seguimento de Roupas Masculinas
+Loja Confidencial projeto de E-Commerce na segmento de Roupas Masculinas
 
 link para o site: Confidencial "https://confidencial5.lojavirtualnuvem.com.br/"
 
